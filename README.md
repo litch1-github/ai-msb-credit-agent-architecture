@@ -46,4 +46,4 @@ https://github.com/litch1-github/ai-msb-credit-agent-architecture/blob/main/docs
 
 ---
 *Автор: Ганжа Илья*  
-*Связь: https://hh.ru/resume/483458f9ff1036b39b0039ed1f34305434714d*
+*Связь: телеграм @ganja_iv, почта litch1@yandex.ru
